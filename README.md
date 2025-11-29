@@ -1,0 +1,2 @@
+# LA7_Setiady_51422525
+LA 7 KUMPULAN
